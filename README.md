@@ -1,8 +1,8 @@
-- 👋 **Pornhub 最新地址 👋 (最新更新时间2024-08-07)**
+- 👋 **Pornhub 最新地址**👋 
 
 - 👀 Pornhub 永久地址（永久有效，谨防迷路，需翻墙）：https://phav.cc
 
-- 🌱 Pornhub 最新下载地址（免翻墙，激情看片）： https://cf4f06.rpjujaysd.me
+- 🌱 Pornhub 最新下载地址（免翻墙，激情看片）： https://3ef7e.rpjujaysd.me
 
 - 💞️ Pornhub回家邮箱，发送任意信息到邮箱 pornhub.h13@gmail.com 即可收到最新下载地址
 
